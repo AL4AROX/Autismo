@@ -1,2 +1,0 @@
-# Autismo
-Lol
